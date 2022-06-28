@@ -1,6 +1,6 @@
 ### Oi!👋 Eu sou Leonardo Venâncio Correia😀
 
-- 🔭 Estudante de Ciência da Computação
+- 🖥 Estudante de Ciência da Computação
 
 ##
 
