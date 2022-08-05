@@ -1,6 +1,7 @@
 ### Welcome!👋 I'm Leonardo Venâncio Correia😀
 
 - 🖥 Computer Science Student
+- 💪 Trying to be better every day
 
 ##
 
