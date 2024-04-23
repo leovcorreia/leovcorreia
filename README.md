@@ -2,6 +2,7 @@
 
 - 🖥 Computer Science Student
 - 💪 Trying to be better every day
+- 📧 Contact: leonardovenanciocorreia@gmail.com
 
 ##
 
